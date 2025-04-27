@@ -7,11 +7,11 @@
 ![A Minecraft Schuld Official Poster](https://camo.githubusercontent.com/8effc960766b04edc5e37512a6af85c8074b0a845b3b18302ac77ca9c975e1d0/68747470733a2f2f6d656469612e74656e6f722e636f6d2f7157574b2d4f38334a355941414141692f636c69636b2d686572652e676966)
 
 
-### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://aaamiiin.com/pl/movie/950387/a-minecraft-movie-stargg)
+### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://streamzy.fun/pl/movie/950387/a-minecraft-movie-gitover)
 
-### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://aaamiiin.com/pl/movie/950387/a-minecraft-movie-stargg)
+### [➤ ►🌍📺📱👉 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm](https://streamzy.fun/pl/movie/950387/a-minecraft-movie-gitover)
 
-### [➤ ►🌍📺📱👉 Oglądaj 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm Za Darmo](https://aaamiiin.com/pl/movie/950387/a-minecraft-movie-stargg)
+### [➤ ►🌍📺📱👉 Oglądaj 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) Cały 𝙵ilm Za Darmo](https://streamzy.fun/pl/movie/950387/a-minecraft-movie-gitover)
 
 𝙵ilm 𝙼𝚒ne𝚌𝚛𝚊ft: 𝙵ilm (2025) - Gdzie obejrzec | Netflix | Disney+ | HBO Max | SkyShowtime | Amazon Prime Video | Cineman.
 
